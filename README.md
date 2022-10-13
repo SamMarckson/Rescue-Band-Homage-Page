@@ -1,1 +1,1 @@
-# Regate Band Page
+# Resgate Band Page
